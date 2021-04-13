@@ -1,5 +1,5 @@
 You will need the following ingredients-
-* 8(1 ounce) of unsweetened chocoloate.
+* 8(1 ounce) squares of unsweetened chocoloate.
 * 1 cup Butter
 * 5 eggs
 * 3 cups of suger
